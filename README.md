@@ -4,6 +4,6 @@
   
 <p align="center"
   
-[Rentry](https://rentry.co/Whisper)⠀❜⠀[Atabook](https://angel.atabook.org/)⠀❜⠀[Pronouns](https://pronouns.cc/@dear) <br> [Daily click](https://arab.org/)⠀❜⠀[Palestine resources](https://ceasefiretoday.com/)
+[Rentry](https://rentry.co/lailuvia)⠀❜⠀[Atabook](https://angel.atabook.org/)⠀❜⠀[Pronouns](https://pronouns.cc/@dear) <br> [Daily click](https://arab.org/)⠀❜⠀[Palestine resources](https://ceasefiretoday.com/)
 
 </p>
