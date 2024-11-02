@@ -1,16 +1,6 @@
-<p align="center">
-<img src="https://i.imgur.com/4azz7r6.png">
-</p>
-  
-<p align="center"
-  
-[Rentry](https://rentry.co/lailuvia)⠀❜⠀[Atabook](https://angel.atabook.org/)⠀❜⠀[Pronouns](https://pronouns.cc/@dear) <br> [Daily click](https://arab.org/)⠀❜⠀[Palestine resources](https://ceasefiretoday.com/)
+[Daily click](https://arab.org/)⠀❜⠀[Palestine resources](https://ceasefiretoday.com/)
 
-</p>
+hey guys im too tired to remake this sorry <br> links: [main](https://rentry.co/left), [ids](https://rentry.co/qpmwswry), [pronouns](https://pronouns.cc/@dear), [interests](https://rentry.co/treachery) 🎀 <br> im a normal cute boy please dont be scared of me
 
-<p align="center"
-  
 ![](https://komarev.com/ghpvc/?username=cannibangel&color=e8bad3&style=plastic&label=♡)
-
-</p>
 
