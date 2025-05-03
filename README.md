@@ -1,6 +1,0 @@
-[Daily click](https://arab.org/)⠀❜⠀[Palestine resources](https://ceasefiretoday.com/)
-
-hey guys im too tired to remake this sorry <br> links: [main](https://rentry.co/escape), [pronouns](https://pronouns.cc/@dear), [interests](https://rentry.co/cheshirecat) <br> 
-
-![](https://komarev.com/ghpvc/?username=cannibangel&color=e8bad3&style=plastic&label=♡)
-
